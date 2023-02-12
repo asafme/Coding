@@ -1,2 +1,2 @@
-'Jessica Menashe'
+'JM'
 
